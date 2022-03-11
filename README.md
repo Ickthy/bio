@@ -1,9 +1,9 @@
 Howdy there! I'm Ickthy and I am a pretty nice person in real life (most of the time at least XD) who loves:
 
 🎮 Gaming
-/n⚙ Screwing around with Technology
-/n🤝 Meeting new people
-/nSome other information about me:
+⚙ Screwing around with Technology
+🤝 Meeting new people
+Some other information about me:
 
 I'm a Junior in High School
 I live in California
